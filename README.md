@@ -1,1 +1,1 @@
-Sweet Bonanza Slot: https://bit.ly/sweetbonanzaTR 🍬
+Sweet Bonanza Slot: https://bit.ly/sweetbonanzaTR 
